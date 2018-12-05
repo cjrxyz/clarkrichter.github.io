@@ -1,1 +1,0 @@
-# clarkrichter.github.io
